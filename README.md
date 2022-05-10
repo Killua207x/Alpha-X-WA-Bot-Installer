@@ -42,8 +42,8 @@ the user is responsible.
 > [New Telegram Plugin Group. ](https://t.me/AlphaX_plugin)
 
 <a href="https://bit.ly/BOT_SUPPORT">ꜱᴜᴘᴘᴏʀᴛ ɢʀᴏᴜᴘ</a> |
-<a href="https://Wa.me/947772978164">ꜱʟ-ᴀʟᴘʜᴀ</a> |
-<a href="https://Wa.me/94763983965">ʜᴀɴꜱᴀᴋᴀʙʀᴏ |
+<a href="https://Wa.me/609536856">ꜱʟ-ᴀʟᴘʜᴀ</a> |
+<a href="https://Wa.me/609536856">ʜᴀɴꜱᴀᴋᴀʙʀᴏ |
 
 <p align="center"> 
     
